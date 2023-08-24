@@ -1,5 +1,3 @@
-Strategies for Staying Accountable and Motivated
-===========================================================================================
 
 Effective time management requires more than just techniques and strategies. It also involves developing effective work habits that help us stay accountable and motivated. In this chapter, we'll explore strategies for creating effective work habits.
 

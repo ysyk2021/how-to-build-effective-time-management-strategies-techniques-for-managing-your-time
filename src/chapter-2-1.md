@@ -1,5 +1,3 @@
-Techniques for Understanding One's Unique Time Management Style
-==================================================================================================================
 
 Effective time management requires an understanding of one's unique time management style. Everyone has their own way of managing their time, and identifying your style can help you develop strategies that work best for you. In this chapter, we'll explore techniques for identifying your time management style.
 

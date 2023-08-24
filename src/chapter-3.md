@@ -1,5 +1,3 @@
-Chapter 3: Setting SMART Goals
-==============================
 
 Setting SMART goals is an effective way to manage your time and boost productivity. By creating specific, measurable, achievable, relevant, and time-bound goals, you can establish priorities and deadlines that will help you stay on track towards achieving your objectives. In this chapter, we'll explore techniques for setting SMART goals and objectives, strategies for establishing priorities and deadlines, and the benefits of SMART goals in encouraging accountability and achievement.
 

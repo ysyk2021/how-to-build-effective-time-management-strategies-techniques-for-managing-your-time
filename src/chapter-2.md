@@ -1,5 +1,3 @@
-Chapter 2: Identifying Your Time Management Style
-=================================================
 
 Effective time management requires an understanding of one's unique time management style. Everyone has their own way of managing their time, and identifying your style can help you develop strategies that work best for you. In this chapter, we'll explore techniques for understanding one's unique time management style, strategies for overcoming procrastination and distractions, and the benefits of embracing one's time management style in encouraging progress and goal attainment.
 

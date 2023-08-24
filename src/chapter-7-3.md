@@ -1,5 +1,3 @@
-The Benefits of Effective Work Habits in Encouraging Consistency and Success
-=======================================================================================================================
 
 Effective time management is not just about applying techniques and strategies, but also about developing effective work habits. In this chapter, we'll explore the benefits of effective work habits in encouraging consistency and success.
 

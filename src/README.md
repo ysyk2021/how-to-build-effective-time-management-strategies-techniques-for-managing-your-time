@@ -1,4 +1,3 @@
-# Introduction
 
 Time is one of the most valuable resources we have, and effective time management is essential for success in any area of life. Whether you're a student, professional, or entrepreneur, managing your time effectively can help you achieve your goals, reduce stress, and improve your overall quality of life.
 

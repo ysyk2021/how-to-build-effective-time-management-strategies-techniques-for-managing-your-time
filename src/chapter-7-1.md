@@ -1,5 +1,3 @@
-Techniques for Developing Effective Work Habits and Routines
-=======================================================================================================
 
 Developing effective work habits is essential to achieving success in time management. In this chapter, we'll explore techniques for developing effective work habits and routines.
 

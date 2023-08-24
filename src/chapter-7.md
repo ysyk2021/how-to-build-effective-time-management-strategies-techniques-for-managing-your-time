@@ -1,5 +1,3 @@
-Chapter 7: Creating Effective Work Habits
-=========================================
 
 Developing effective work habits is essential to achieving success in time management. In this chapter, we'll explore techniques for developing effective work habits and routines, strategies for staying accountable and motivated, and the benefits of effective work habits in encouraging consistency and success.
 
@@ -27,5 +25,4 @@ The Benefits of Effective Work Habits in Encouraging Consistency and Success
 Effective work habits can lead to improved focus and concentration, reduced stress and anxiety, increased productivity, enhanced creativity and innovation, and improved work-life balance. By developing effective work habits, individuals can achieve greater success in both personal and professional life.
 
 In conclusion, creating effective work habits requires setting realistic goals, creating a schedule, prioritizing tasks, minimizing distractions, taking breaks, and evaluating and adjusting your routine regularly. Staying accountable and motivated through tracking progress, seeking feedback, rewarding yourself, and finding an accountability partner can also help individuals maintain consistency and achieve success.
-
 

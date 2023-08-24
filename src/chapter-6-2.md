@@ -1,5 +1,3 @@
-Strategies for Identifying Areas for Delegation and Finding Skilled Help
-======================================================================================================================================
 
 Identifying areas where delegation or outsourcing can be beneficial can be challenging. In this chapter, we'll explore strategies for identifying areas for delegation and finding skilled help.
 

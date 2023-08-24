@@ -1,5 +1,3 @@
-Strategies for Estimating Time Needed for Completion
-============================================================================================================
 
 When it comes to effective time management, planning and scheduling are key. However, in order to plan and schedule effectively, it's important to have a good understanding of how long tasks will take to complete.
 

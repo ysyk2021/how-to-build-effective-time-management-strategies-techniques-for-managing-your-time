@@ -1,5 +1,3 @@
-The Benefits of Work-Life Balance in Encouraging Sustainability and Avoiding Burnout
-==============================================================================================================================
 
 Effective time management is not just about achieving productivity and success in work, but also about maintaining a healthy work-life balance. In this chapter, we'll explore the benefits of work-life balance in encouraging sustainability and avoiding burnout.
 

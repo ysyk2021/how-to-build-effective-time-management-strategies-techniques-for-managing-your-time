@@ -1,5 +1,3 @@
-Strategies for Finding and Implementing Apps and Systems that Fit One's Needs
-========================================================================================================================================
 
 Utilizing time management tools and technology can be a great way to optimize one's time and boost productivity. In this chapter, we'll explore strategies for finding and implementing apps and systems that fit one's needs.
 

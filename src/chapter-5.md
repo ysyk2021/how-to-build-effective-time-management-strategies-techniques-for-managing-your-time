@@ -1,5 +1,3 @@
-Chapter 5: Utilizing Time Management Tools and Technology
-=========================================================
 
 Time management tools and technology can be incredibly helpful in boosting productivity and staying organized. In this chapter, we'll explore techniques for using time management tools and technology effectively, strategies for finding and implementing apps and systems that fit one's needs, and the benefits of utilizing time management tools and technology in encouraging organization and productivity.
 

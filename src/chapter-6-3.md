@@ -1,5 +1,3 @@
-The Benefits of Delegating and Outsourcing in Encouraging Focus and Time Optimization
-===================================================================================================================================================
 
 Delegating and outsourcing tasks and responsibilities can have several benefits in encouraging focus and time optimization. In this chapter, we'll explore these benefits in more detail.
 
