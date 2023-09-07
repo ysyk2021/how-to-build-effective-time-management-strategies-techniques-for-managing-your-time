@@ -10,3 +10,7 @@ Throughout the book, we'll also address common challenges and obstacles to effec
 Whether you're looking to improve your academic performance, advance your career, or simply make the most of your free time, this book will provide you with the tools and techniques you need to build effective time management strategies and boost your productivity.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
