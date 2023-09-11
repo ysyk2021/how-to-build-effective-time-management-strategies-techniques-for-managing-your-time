@@ -1,5 +1,4 @@
-Chapter 8: Techniques for Delegating and Outsourcing Tasks and Responsibilities
-===============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Delegating and outsourcing tasks and responsibilities are crucial skills for effective time management and productivity. In this chapter, we will explore various techniques that can help you delegate and outsource effectively, enabling you to focus on high-value activities and optimize your time.
 

@@ -1,5 +1,4 @@
-Chapter 8: Techniques for Understanding One's Unique Time Management Style
-==========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Understanding your unique time management style is essential for developing effective strategies to manage your time and boost productivity. In this chapter, we will explore various techniques that can help you gain insight into your personal time management style and tailor your approach accordingly.
 

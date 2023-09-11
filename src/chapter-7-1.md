@@ -1,5 +1,4 @@
-Chapter 8: Techniques for Developing Effective Work Habits and Routines
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Developing effective work habits and routines is essential for managing your time efficiently and boosting productivity. In this chapter, we will explore practical techniques that can help you establish and maintain productive work habits and routines.
 

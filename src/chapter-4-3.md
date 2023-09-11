@@ -1,5 +1,4 @@
-Chapter 6: The Benefits of Planning and Scheduling in Encouraging Focus and Efficiency
-======================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Planning and scheduling are essential components of effective time management, enabling individuals to focus their efforts and work with greater efficiency. In this chapter, we will explore the numerous benefits of planning and scheduling, and how they contribute to enhanced focus and productivity.
 

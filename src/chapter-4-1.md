@@ -1,5 +1,4 @@
-Chapter 7: Techniques for Planning and Scheduling Tasks and Activities
-======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Proper planning and scheduling are fundamental to effective time management and boosting productivity. In this chapter, we'll explore various techniques and strategies that can help you efficiently plan and schedule your tasks and activities.
 

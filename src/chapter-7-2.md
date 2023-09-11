@@ -1,5 +1,4 @@
-Chapter 10: Strategies for Staying Accountable and Motivated
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Accountability and motivation are crucial aspects of effective time management and productivity. In this chapter, we will explore strategies to help you stay accountable to your goals and maintain high levels of motivation throughout your time management journey.
 

@@ -1,5 +1,4 @@
-Chapter 9: The Benefits of Embracing One's Time Management Style in Encouraging Progress and Goal Attainment
-============================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Embracing your unique time management style is not only important for understanding how you work best but also for encouraging progress and achieving your goals. In this chapter, we will explore the numerous benefits of embracing your time management style and how it can contribute to increased productivity and goal attainment.
 

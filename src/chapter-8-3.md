@@ -1,5 +1,4 @@
-Chapter 9: The Benefits of Work-Life Balance in Encouraging Sustainability and Avoiding Burnout
-===============================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Achieving a work-life balance is not just about finding time for personal activities; it is also about promoting sustainability and preventing burnout. In this chapter, we explore the importance of work-life balance, the benefits it brings to individuals and organizations, and strategies for achieving it.
 

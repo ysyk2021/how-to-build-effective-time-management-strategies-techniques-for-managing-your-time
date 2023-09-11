@@ -1,5 +1,4 @@
-Chapter 10: Strategies for Overcoming Procrastination and Distractions
-======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Procrastination and distractions are common challenges that hinder effective time management and productivity. In this chapter, we will explore strategies to overcome procrastination and minimize distractions, enabling you to stay focused and make the most of your time.
 

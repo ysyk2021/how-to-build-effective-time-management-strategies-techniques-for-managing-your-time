@@ -1,5 +1,4 @@
-Chapter 6: Strategies for Identifying Areas for Delegation and Finding Skilled Help
-===================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 One of the biggest challenges of time management is balancing tasks and responsibilities. Sometimes it can be difficult to juggle everything on your own, which is why delegation is such an important skill. However, knowing which tasks to delegate and finding skilled help can also be a challenge. In this chapter, we'll explore strategies for identifying areas for delegation and finding the right people to help you.
 

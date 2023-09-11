@@ -1,5 +1,4 @@
-Chapter 11: The Benefits of Effective Work Habits in Encouraging Consistency and Success
-========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective work habits play a critical role in managing time and boosting productivity. In this chapter, we will explore the numerous benefits that effective work habits bring and how they contribute to consistency and success in your professional and personal life.
 

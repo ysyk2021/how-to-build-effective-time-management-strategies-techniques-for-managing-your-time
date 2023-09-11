@@ -1,5 +1,4 @@
-Chapter 7: Strategies for Estimating Time Needed for Completion
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Accurately estimating the time needed for task completion is a crucial aspect of effective time management. In this chapter, we will explore various strategies and techniques that can help you estimate time more effectively, allowing for better planning and enhanced productivity.
 

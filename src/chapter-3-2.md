@@ -1,5 +1,4 @@
-Chapter 6: Strategies for Establishing Priorities and Deadlines
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effectively managing your time requires you to establish clear priorities and deadlines. Without these, it's easy to become overwhelmed and lose track of important tasks. In this chapter, we will explore strategies for establishing priorities and deadlines to optimize your time management and boost productivity.
 

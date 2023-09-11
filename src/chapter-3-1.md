@@ -1,5 +1,4 @@
-Chapter 7: Techniques for Setting SMART Goals and Objectives
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Setting SMART goals and objectives is crucial for effective time management and achieving success. SMART is an acronym that stands for Specific, Measurable, Achievable, Relevant, and Time-bound. When your goals align with these criteria, they become clearer, more focused, and easier to attain. This chapter explores techniques for setting SMART goals and objectives to optimize your time management efforts and enhance productivity.
 

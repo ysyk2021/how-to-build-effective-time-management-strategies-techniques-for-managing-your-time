@@ -1,5 +1,4 @@
-Chapter 8: The Benefits of SMART Goals in Encouraging Accountability and Achievement
-====================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Setting goals is a fundamental aspect of effective time management and productivity. However, not all goals are created equal. In this chapter, we will explore the benefits of using SMART (Specific, Measurable, Achievable, Relevant, Time-bound) goals as a framework for encouraging accountability and driving achievement.
 
